@@ -1,2 +1,2 @@
-# Hallazino-Wayn
+# Hallazino
 All about my music career worldwide
